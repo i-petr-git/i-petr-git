@@ -1,4 +1,4 @@
-## Hey 👋, I'm Kate!  
+## Hey 👋, I'm PETR!  
   
 
 <a href="https://github.com/i-petr-git" target="_blank">
